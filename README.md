@@ -31,4 +31,4 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 
 ### 6. Contact Us
 If you have any questions or suggestions regarding this Privacy Policy, contact us at:  
-**Email:** support@kelevra.tech
+**Email:** support@kelevraitsolutions.com
